@@ -13,7 +13,7 @@
 
 - 👯 I’m looking to collaborate on **developers in community**
 
-- 👧✔All of my projects are available at **https://github.com/MuddamPoojithaa** 💥✨
+- 👧✔All of my projects are available at **https://github.com/MuddamPoojithaa**✨
 
 - 🤔 I’m looking for help with **appointment_with_company**
 
