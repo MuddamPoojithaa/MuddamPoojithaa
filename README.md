@@ -17,7 +17,7 @@
 
 - 😄 Pronouns ** She/her 😊**
 
-- ⚡ Fun fact  **I'm fairly good with Sketching ❤😉**
+- ⚡ Fun fact   ** I'm fairly good with Sketching ❤😉**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
