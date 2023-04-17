@@ -17,7 +17,7 @@
 
 - 🤔 I’m looking for help with **appointment_with_company**
 
-- 😄 Pronouns ** She/her 😊**
+- 😄 Pronouns ** She/her 😊*
 
 - ⚡ Fun fact   ** I'm fairly good with Sketching ❤😉**
 
